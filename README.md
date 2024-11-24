@@ -1,6 +1,6 @@
 ## Hiya 👋
 
-- 🏎️ Formula Student is 3cool5u
+- 🏎️ Formula Student is 3spooky5u💀
 
 no really it is.
 
